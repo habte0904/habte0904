@@ -7,9 +7,7 @@ Habtamu Petros
 
 habtamuptr2021@gmail.com
 
-+251904388768
-
-Profile: https://www.smartr.me/public/profiles/habtamu.petros
+ +251 904 660 005 / +251 904 388 768 
 
 LinkedIn :https://www.linkedin.com/in/habtamu-petros-802aa8212
 
