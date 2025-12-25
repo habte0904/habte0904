@@ -5,7 +5,7 @@ Addis Ababa, Ethiopia
 
 Habtamu Petros
 
-habtamuptr2021@gmail.com
+petrosh122@gmail.com
 
  +251 904 660 005 / +251 904 388 768 
 
